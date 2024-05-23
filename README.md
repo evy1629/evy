@@ -19,9 +19,5 @@ meu nome e evy rodrigues
    
    everodrigues166@gmail.com
 
-
-
-
    
-   
-https://media1.tenor.com/m/icy77XLRACIAAAAC/brazil-sao-paulo.gif
+![]( https://media1.tenor.com/m/icy77XLRACIAAAAC/brazil-sao-paulo.gif)
